@@ -1,1 +1,1 @@
-# salam aleykum
+# salam aleykum allah sizi qorusun
